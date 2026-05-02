@@ -1,4 +1,4 @@
-# 15-Minute Korean Beef and Quinoa Bowls
+# Korean Beef and Quinoa Bowls
 
 **Serves:** 4 · **Time:** 15 min
 
