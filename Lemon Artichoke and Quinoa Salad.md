@@ -1,4 +1,4 @@
-# Lemony Artichoke and Quinoa Salad
+# Lemon Artichoke and Quinoa Salad
 
 **Serves:** 4
 
