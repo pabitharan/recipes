@@ -1,4 +1,4 @@
-# Mediterranean Turkey Burgers
+# Greek Turkey Burgers
 
 **Makes:** 5 burgers
 
