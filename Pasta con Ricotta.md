@@ -12,6 +12,7 @@
 - 1 cup grape tomatoes
 - 1 tsp salt
 - 4 tbsp olive oil
+- Protein of your choosing (shrimp, chicken, ground beef)
 
 ## Instructions
 
