@@ -1,4 +1,4 @@
-# Southwestern Chopped Chicken Salad
+# Southwestern Chicken Salad
 
 **Serves:** 6 · **Time:** 10 min
 
