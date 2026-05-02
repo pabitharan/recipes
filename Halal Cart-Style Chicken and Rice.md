@@ -1,4 +1,4 @@
-# Halal Cart-Style Chicken and Rice with White Sauce
+# Halal Cart-Style Chicken and Rice
 
 **Serves:** 4 · **Prep:** 15 min · **Cook:** 40 min · **Marinate:** 1+ hr
 
