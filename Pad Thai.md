@@ -1,4 +1,4 @@
-# Easy Homemade Pad Thai
+# Pad Thai
 
 **Serves:** 4
 
